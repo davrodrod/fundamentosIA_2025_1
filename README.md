@@ -1,0 +1,1 @@
+# fundamentosIA_2024_1
